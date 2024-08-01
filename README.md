@@ -14,3 +14,6 @@ BOAS VINDAS AO MEU PERFIL🥰
 
 @alurastartestudante☕
 
+
+![](https://media.tenor.com/2UkHz5-9U6UAAAAj/kaguya-sama-love-is-war-anime.gif)
+
